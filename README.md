@@ -1,0 +1,2 @@
+# Lucinda
+time is money
